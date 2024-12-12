@@ -4,5 +4,9 @@
 
 <p align="center">
 pfp and top img cr : itodenwa_1 (twt)
-✦ hihi
 </p>
+
+<p align="center">
+offtab and semi mute alot of times !! but c+h is fine ^ _ ^ i lub being people's pillows in pony town !!
+</p>
+
