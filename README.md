@@ -7,6 +7,8 @@ pfp and top img cr : itodenwa_1 (twt)
 </p>
 
 <p align="center">
-offtab and semi mute alot of times !! but c+h is fine ^ _ ^ i lub being people's pillows in pony town !!
+offtab and semi mute alot of times !! but c+h is fine ^ _ ^ 
 </p>
-
+<p align="center">
+i love being people's pillows in pony town !!
+</p>
