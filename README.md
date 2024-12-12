@@ -15,5 +15,8 @@ offtab and semi mute alot of times !! but c+h is fine
 i love being people's pillows in pony town !!
 </p>
 <p align="center">
-i'd love for a ivan pony to sit w me !! please don't actively hate on ivlk infront of me ^ _ ^ ;
+i also dont talk alot in public chat unless if it's with a close friend ;
+</p>
+<p align="center">
+ i'm awkward and i prefer if you communicate with me on whispers!
 </p>
