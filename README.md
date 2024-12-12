@@ -18,5 +18,10 @@ i love being people's pillows in pony town !!
 i also dont talk alot in public chat unless if it's with a close friend ;
 </p>
 <p align="center">
- i'm awkward and i prefer if you communicate with me on whispers!
+ i'm awkward and i prefer if you communicate with me in whispers!
+</p>
+ 
+
+<p align="center">
+more info about me on my rentry   >   <
 </p>
