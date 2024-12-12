@@ -3,5 +3,6 @@
 </p>
 
 <p align="center">
-jo
+pfp and top img cr : itodenwa_1 (twt)
+
 </p>
