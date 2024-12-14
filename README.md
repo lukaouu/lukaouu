@@ -6,7 +6,7 @@
 pfp and top img cr : itodenwa_1 (twt)
 </p>
 <p align="center">
-heavy luka c'link . synpath / irl 
+heavy luka and mizi c'link . synpath / irl 
 </p>
 <p align="center">
 offtab and semi mute alot of times !! but c+h is fine
