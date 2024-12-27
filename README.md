@@ -23,5 +23,5 @@ i also dont talk alot in public chat unless if it's with a close friend ;
  
 
 <p align="center">
-more info about me on my rentry   >   <
+[ivlk server](https://discord.gg/6vKpcHyvhZ) [twt](https://x.com/lukaouu)
 </p>
