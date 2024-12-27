@@ -21,4 +21,4 @@ i also dont talk alot in public chat unless if it's with a close friend ;
  i'm awkward and i prefer if you communicate with me in whispers!
 </p>
  
-⠀⠀⠀⠀⠀⠀⠀⠀⠀[ivlk server](https://discord.gg/6vKpcHyvhZ)⠀⠀⠀⠀⠀⠀ [twt](https://x.com/lukaouu)
+<div align="center"> [ivlk server](https://discord.gg/6vKpcHyvhZ)⠀[twt](https://x.com/lukaouu)
