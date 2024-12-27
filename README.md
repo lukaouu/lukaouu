@@ -21,4 +21,4 @@ i also dont talk alot in public chat unless if it's with a close friend ;
  i'm awkward and i prefer if you communicate with me in whispers!
 </p>
  
-<div align="center"> [ivlk server](https://discord.gg/6vKpcHyvhZ)⠀[twt](https://x.com/lukaouu) </div>
+<div align="center"> come join our ivlk dedicated server ; a safe space for mizitill and all kinds of alnst rarepairs  !! </div>
