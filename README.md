@@ -6,16 +6,16 @@
 <img src="https://iili.io/2D0Qxl1.png" />
 </p>
 <p align="center">
-pfp and top img cr : itodenwa_1 (twt)
+pfp cr: DireSugar (twt)
 </p>
 <p align="center">
-heavy luka and mizi c'link . synpath / irl 
+nortmil ceo !!
 </p>
 <p align="center">
-offtab and semi mute alot of times !! but c+h is fine
+nortmil is my comfort :3 
 </p>
 <p align="center">
-i love being people's pillows in pony town !!
+c/h w2i . semi verb  offtab 
 </p>
 <p align="center">
 i also dont talk alot in public chat unless if it's with a close friend ;
