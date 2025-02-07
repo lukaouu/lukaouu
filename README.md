@@ -6,7 +6,7 @@
 <img src="https://iili.io/2D0Qxl1.png" />
 </p>
 
-$${\color{#74758d}pfp cr DireSugar on twt}$$
+$${\color{#74758d}pfp \space cr \space DireSugar \space on \space twt}$$
 
 $${\color{#74758d}one \space and \space only \space nortmil \space ceo}$$
 $${\color{#74758d}c/h \space w2i \space semi \space verb \space offtab \space at \space most}$$
