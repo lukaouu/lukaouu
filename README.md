@@ -16,4 +16,4 @@ $${\color{#74758d}i'd \space love \space to \space match \space ponies \space es
 $${\color{#74758d}norton \space ponies \space please \space sit \space w \space me \space i \space promise \space im \space nice \space and \space i \space don't \space bite}$$
 
 
-$${\color{#74758d}more \space info \space about \space me \space on \space my \space rentry }$$
+$${\color{#74758d}more \space info \space about \space me \space on \space my \space rentry \space (ㅅ´ ˘ `) }$$
