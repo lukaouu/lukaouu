@@ -6,4 +6,4 @@
 <img src="https://iili.io/2D0Qxl1.png" />
 </p>
 
-$${\color{green}HII}$$
+$${\color{#74758d}HII}$$
